@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HYPHY1
 - 👀 I’m interested in solving puzzles and playing TV, game 
 - 🌱 I’m currently learning Material Engineering 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on Friendship 
 - 📫 contact+233593620213
 
 <!---
